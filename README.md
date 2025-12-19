@@ -93,7 +93,7 @@ Moussadia
 
 Cyrille
 
-thierno
+Thierno
 
 rodrigue
 
